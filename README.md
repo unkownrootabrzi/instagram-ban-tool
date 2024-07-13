@@ -44,7 +44,8 @@ https://github.com/abrzidev/instagram-ban-report/assets/170591635/33c276db-d516-
 --------------------------------------------------------------------------------------------------------------------------------
 
 ## How to get the program or report a account:
-- Go to <a href="https://t.me/snspyreportinsta"><img src="[https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram](https://img.shields.io/badge/Telegram-Channel-33A8E3)"></a>
+- Go to <a href="https://t.me/snspyreportinsta"><img src="![Static Badge](https://img.shields.io/badge/join-telegram_channel-blue)
+"></a>
 - Check the proof.
 - Under the videos you will see my contact.
 <hr>
