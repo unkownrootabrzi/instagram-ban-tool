@@ -44,19 +44,10 @@ https://github.com/abrzidev/instagram-ban-report/assets/170591635/33c276db-d516-
 --------------------------------------------------------------------------------------------------------------------------------
 
 ## How to get the program or report a account:
-- Go to <a href="https://t.me/rootabrzi"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
-- Check the proof.
-- Under the videos you will see my contact.
+- Go to <a href="https://t.me/rootabrzi"><img src="https://img.shields.io/badge/join-telegram_channel-blue"></a>
+
+- you can Check the proofs
+
 <hr>
 <img src="https://litter.catbox.moe/p2hqih.jpg" alt="Trulli" width="239" height="232">
 
-
-
-
--if you want to become b/uyer of this bot
-
--contcat me in tele
-
--https://t.me/abrzi505
-
--channel : https://t.me/rootabrzi
