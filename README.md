@@ -42,6 +42,20 @@ https://github.com/abrzidev/instagram-ban-report/assets/170591635/33c276db-d516-
 
 --------------------------------------------------------------------------------------------------------------------------------
 --------------------------------------------------------------------------------------------------------------------------------
+
+## How to get the program or report a account:
+- Go to <a href="https://t.me/snspyreportinsta"><img src="[https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram](https://img.shields.io/badge/Telegram-Channel-33A8E3)"></a>
+- Check the proof.
+- Under the videos you will see my contact.
+<hr>
+<img src="https://i.postimg.cc/2yryF4VG/nouers.jpg" alt="Trulli" width="239" height="232">
+
+
+
+
+
+
+
 -if you want to become b/uyer of this bot
 
 -contcat me in tele
